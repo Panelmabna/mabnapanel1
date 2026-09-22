@@ -1,1 +1,1 @@
-# mabnapanel1
+# translator online for Game
